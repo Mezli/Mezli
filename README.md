@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mezli
-- 👀 I’m an artist working eith photography and new media
+- 👀 I’m an artist working with photography and new media
 - 🌱 I’m currently learning to make animations with AI
 - 💞️ I’m looking to collaborate on blockchain projects
 - 📫 How to reach me www.mezli.be
